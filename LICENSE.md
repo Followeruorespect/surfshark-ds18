@@ -1,4 +1,4 @@
-
+advanced Surfshark Client | no-logs-policy + camouflage-mode offers the most advanced Surfshark client, with no-logs-policy and camouflage-mode. Ideal for users who value privacy
 
 
 
